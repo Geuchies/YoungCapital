@@ -1,2 +1,0 @@
-# YoungCapital
-Young Capital Traineeship
